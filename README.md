@@ -1,7 +1,7 @@
 # 高塔养鸽厂命运2攻略收录库
 # 公会地址 → http://t.cn/EGZLRdl 
 # YY号 33441576
-# [点击查看收录的攻略](https://github.com/sd362318/Destiny2/issues)
+# -->[点击查看收录的攻略](https://github.com/sd362318/Destiny2/issues)<--
 
 [RAID查询](https://raid.report/)
 
