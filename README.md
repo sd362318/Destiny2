@@ -3,6 +3,8 @@
 # YY号 33441576
 # -->[点击查看收录的攻略](https://github.com/sd362318/Destiny2/issues)<--
 
+#[老九在哪里](https://ftw.in/game/destiny-2/find-xur)
+
 [RAID查询](https://raid.report/)
 
 [战绩查询](http://t.cn/Rga889G)
