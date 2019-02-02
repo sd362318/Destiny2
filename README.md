@@ -18,3 +18,5 @@
 [许愿墙](http://t.cn/EGM6XUS)
 
 [往日灾祸下水道地图](http://t.cn/EGM6n)
+
+![image](https://img.nga.178.com/attachments/mon_201901/26/fnQ5-bv5yZ18T3cSzy-11y.jpg)
