@@ -1,4 +1,6 @@
 # 高塔养鸽厂命运2攻略收录库
+# 公会地址 → http://t.cn/EGZLRdl 
+# YY号 33441576
 
 [RAID查询](https://raid.report/)
 
