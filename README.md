@@ -1,5 +1,5 @@
 # 高塔养鸽厂命运2攻略收录库
-## 公会地址 → http://t.cn/EGZLRdl &emsp;&emsp;&emsp; QQ群101084722 &emsp;&emsp;&emsp; YY号 33441576
+## 公会地址 → http://t.cn/EGZLRdl &emsp;&emsp;&emsp; QQ群 101084722 &emsp;&emsp;&emsp; YY号 33441576
 # -->[点击查看收录的攻略](https://github.com/sd362318/Destiny2/issues)<--
 
 # [老九在哪里](https://ftw.in/game/destiny-2/find-xur)&emsp;&emsp;&emsp; [每周周报](https://github.com/sd362318/Destiny2/projects/2)
