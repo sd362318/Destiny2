@@ -10,7 +10,7 @@
 > 
 > [全地图收集](http://t.cn/EGwjL2z)
 > 
-> [全物品资料库](http://t.cn/EGwjiPw)
+> [全物品资料库](http://t.cn/EGwjiPw)/[资料库2](https://light.gg/)
 > 
 > [换装备](http://t.cn/EGwjlVJ)
 > 
