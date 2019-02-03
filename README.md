@@ -21,7 +21,7 @@
 >[过往灾祸下水道地图](https://raw.githubusercontent.com/sd362318/Destiny2/master/image/scourge_sewers.png)
 
 ---
-| 高等挑战位置 | 参考视频 | 高等挑战位置 | 参考视频 | 高等挑战位置 | 参考视频 |
+| 高等挑战位置 | 视频参考 | 高等挑战位置 | 视频参考 | 高等挑战位置 | 视频参考 |
 |:---:|:---:|:---:|:---:|:---:|:---:|
 |克蕾丝脊柱/克蕾丝之脊| [视频参考](https://www.bilibili.com/video/av38260435)|溺亡海湾/宿愿之岸|[视频参考](https://www.bilibili.com/video/av39145515/)|远日点之栖/远日点之眠|[视频参考](https://www.bilibili.com/video/av37216426)
 |预言者隐所/先驱者隐室| [视频参考](https://www.bilibili.com/video/av38830200)|星光大殿/星光之室|[视频参考](https://www.bilibili.com/video/av36445848)|艾希拉花园/艾希拉花园|[视频参考](https://www.bilibili.com/video/av37603680)
