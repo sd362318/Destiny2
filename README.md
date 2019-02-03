@@ -18,7 +18,6 @@
 > 
 > [许愿墙](http://t.cn/EGM6XUS)
 
----
 # <br/><p align="center"><font color="#FE2EF7">往日灾祸下水道地图</font></p>
 ![image](https://raw.githubusercontent.com/sd362318/Destiny2/master/image/scourge_sewers.png)
 
