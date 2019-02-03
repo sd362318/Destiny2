@@ -2,7 +2,7 @@
 ## 公会地址 → http://t.cn/EGZLRdl &emsp;&emsp;&emsp; YY号 33441576
 # -->[点击查看收录的攻略](https://github.com/sd362318/Destiny2/issues)<--
 
-# [老九在哪里](https://ftw.in/game/destiny-2/find-xur)
+# [老九在哪里](https://ftw.in/game/destiny-2/find-xur)&emsp;&emsp;&emsp; [每周周报](https://github.com/sd362318/Destiny2/projects/2)
 
 > [RAID查询](https://raid.report/)
 > 
