@@ -12,7 +12,7 @@
 > 
 > [全物品资料库](http://t.cn/EGwjiPw)/[资料库2](https://light.gg/)
 > 
-> [换装备](http://t.cn/EGwjlVJ)
+> [换装备DIM](http://t.cn/EGwjlVJ)
 > 
 > [利维坦高航](http://t.cn/EGZLMxd)
 > 
